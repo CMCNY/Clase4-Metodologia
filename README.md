@@ -9,3 +9,7 @@ I love :stars:, :computer:, :art:
 Actividad N2
 
 I love do 🎨
+
+Actividad N3
+
+Hoy esta nublado y hace frio
